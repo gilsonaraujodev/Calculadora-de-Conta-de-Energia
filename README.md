@@ -18,5 +18,4 @@ Este software é uma ferramenta valiosa para auxiliar no planejamento financeiro
 ---
 
 Sinta-se à vontade para ajustar e personalizar conforme necessário!
-Meu discord: zparker
 :)
